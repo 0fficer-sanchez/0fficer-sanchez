@@ -1,7 +1,8 @@
 ─────✧･ﾟ: *✧･
 ### 🦁 — Harry talks in his sleep. Have you noticed?
 
-☀️ 
+⚜︎
+
 —
 
 ★ 👑;; Ron IRL ! // ⚡;; Harry Potter's bf ^_^ ★
@@ -21,7 +22,8 @@
 ![tumblr_inline_msg6wsM1yL1qz4rgp540](https://github.com/user-attachments/assets/6a125890-554f-4de3-89a4-8ff788cb0d08)
 
 —
-☀️
+
+⚜︎
 
 ### 🦁 — Yeah, that's me. Ron Weasley, Harry Potter's stupid friend...
 ─────✧･ﾟ: *✧･
