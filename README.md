@@ -1,8 +1,8 @@
 ## 🐇 — Harry talks in his sleep. Have you noticed?
 
-🎭 — online, int with me !
-🌙 — away, but you can still sit/cud w me ^_^
-⛔ — not in the mood, sorry...
+-🎭 — online, int with me !
+-🌙 — away, but you can still sit/cud w me ^_^
+-⛔ — not in the mood, sorry...
 <!--
 **0fficer-sanchez/0fficer-sanchez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
