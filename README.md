@@ -1,6 +1,9 @@
 ─────✧･ﾟ: *✧･
 ### 🦁 — Harry talks in his sleep. Have you noticed?
 
+☀️ 
+—
+
 ★ 👑;; Ron IRL ! // ⚡;; Harry Potter's bf ^_^ ★
 
 ![tumblr_f88100ac62698a266606ccb97c0cbd52_75226797_400](https://github.com/user-attachments/assets/b929cb3c-d134-4834-b7ec-faea19efc9a1)
@@ -16,6 +19,9 @@
 ★ ♉;; birthday May 7, Sun Taurus // 🐕;; golden retriever // ❤️‍🩹;; selectively verbal irl (ASD + ADHD) ★
 
 ![tumblr_inline_msg6wsM1yL1qz4rgp540](https://github.com/user-attachments/assets/6a125890-554f-4de3-89a4-8ff788cb0d08)
+
+—
+☀️
 
 ### 🦁 — Yeah, that's me. Ron Weasley, Harry Potter's stupid friend...
 ─────✧･ﾟ: *✧･
