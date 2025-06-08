@@ -1,11 +1,11 @@
 ─────✧･ﾟ: *✧･
 ### 🦁 — Harry talks in his sleep. Have you noticed?
 
-⚜︎
+✧
 
 —
 
-★ 👑;; call me Ron (Rory/Rors to Val, Fred n Alex) ! // 🌻;; aroace, platwife @ghostofravenclawtower // 💞;; i love my friends sm ^_^ ★
+★ 👑;; call me Ron ! (Rory/Rors to Val, Fred n Alex) // 🌻;; aroace, platwife @ghostofravenclawtower // 💞;; i love my friends sm ^_^ ★
 
 ![tumblr_f88100ac62698a266606ccb97c0cbd52_75226797_400](https://github.com/user-attachments/assets/b929cb3c-d134-4834-b7ec-faea19efc9a1)
 
@@ -23,7 +23,7 @@
 
 —
 
-⚜︎
+✧
 
 ### 🦁 — Yeah, that's me. Ron Weasley, Harry Potter's stupid friend...
 ─────✧･ﾟ: *✧･
