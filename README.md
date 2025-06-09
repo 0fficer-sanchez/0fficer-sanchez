@@ -25,7 +25,7 @@
 
 
 
-★ ❌;; doubles / regretevator ships dni (unless wallmark, skatergradient or any wlw ship !) ★
+★ ❌;; dni: doubles / regretevator ships (unless wallmark, skatergradient or any wlw ship !), proships, antifurs, most CH ships ! ⁉️;; interacting as one of these will result in hostility. ★
 
 ![regretevator-mannequin-mark](https://github.com/user-attachments/assets/5bf442f0-e526-4555-8fa0-c49a6e2a1ffa)
 
