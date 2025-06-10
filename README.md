@@ -5,7 +5,7 @@
 
 —
 
-★ 🪵;; call me Mark / Ron ! // 🌻;; aroace // 🐈‍⬛;; respect others and i will respect you // 🫂;; iwcare ★
+★ 🪵;; call me Mark / Ron ! // 💥;; aroace // 🐈‍⬛;; respect others and i will respect you // 🫂;; iwcare ★
 
 ![wv668trj7tld1](https://github.com/user-attachments/assets/e1e4ad52-acbc-43c7-bab2-ebf02a4fbd8b)
 
