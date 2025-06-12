@@ -23,7 +23,7 @@
 
 
 
-★ ❌;; dni: doubles / regretevator ships ESPECIALLY BARKBEETLE (unless wallmark, skatergradient or any wlw ship !), proships, antifurs, most CH ships ! ⁉️;; interacting as one of these will result in hostility and / or avoidance. ★
+★ ❌;; dni: doubles, mlm regretevator ships (unless wallmark or skatergradient !), proships, antifurs, most CH ships, phighting, murder drones, dsmp ! ⁉️;; interacting as one of these will result in hostility and / or avoidance. ★
 
 ![regretevator-mannequin-mark](https://github.com/user-attachments/assets/5bf442f0-e526-4555-8fa0-c49a6e2a1ffa)
 
