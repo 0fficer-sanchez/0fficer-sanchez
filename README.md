@@ -23,7 +23,7 @@
 
 
 
-★ ❌;; dni: doubles, mlm regretevator ships (unless wallmark or skatergradient !), proships, most CH ships. ‼️;; interacting as one of these will result in hostility and / or avoidance. ★
+★ ❌;; dni: dbls, most regretevator ships, ALL proships, most CH ships. ‼️;; interacting as one of these will result in hostility and / or avoidance. ★
 
 ![regretevator-mannequin-mark](https://github.com/user-attachments/assets/5bf442f0-e526-4555-8fa0-c49a6e2a1ffa)
 
