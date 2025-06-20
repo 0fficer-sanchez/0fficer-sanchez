@@ -5,7 +5,7 @@
 
 —
 
-★ 🪵;; mannequin mark IRL ! // 💥;; aroace // 🐈‍⬛;; respect others and i'll respect ya // 🫂;; iwcare ★
+★ 🪵;; mannequin mark ! // 💥;; do not drink grey stuff infront of me ! // 🐈‍⬛;; respect others and i'll respect ya // 🫂;; iwcare ★
 
 ![wv668trj7tld1](https://github.com/user-attachments/assets/e1e4ad52-acbc-43c7-bab2-ebf02a4fbd8b)
 
