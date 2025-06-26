@@ -5,7 +5,7 @@
 
 —
 
-★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; respect others and i'll respect you // 🫂;; iwcare ★
+★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; calm , but i can get annoying // 🫂;; iwcare ★
 
 ![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 
