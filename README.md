@@ -1,35 +1,37 @@
 ─────✧･ﾟ: *✧･
-### 🔨 — Hey Jim.
+### 👑 — I'M A LEGEND IN MY SPARE TIME ^_^ !
 
 ✧
 
 —
 
-★ 🪵;; mannequin mark ! // 💥;; do not drink grey stuff infront of me ! // 🐈‍⬛;; respect others and i'll respect ya // 🫂;; iwcare ★
+★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; respect others and i'll respect you // 🫂;; iwcare ★
 
-![wv668trj7tld1](https://github.com/user-attachments/assets/e1e4ad52-acbc-43c7-bab2-ebf02a4fbd8b)
-
-
-
-★ 🎭;; online, int w me ! //🌙;; away, but c+h always available for ya // ⛔;; not in th' mood, sorry... ★
-
-![Mannequin_mark_walking](https://github.com/user-attachments/assets/12cdea1e-7ae5-4c9f-819d-4458cb336a47)
+![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 
 
 
-★ ♉;; birthday — May 7, Sun Taurus // 🍂;; best woodworker out there ! // ❤️‍🩹;; selectively verbal irl (ASD + ADHD) // ⭐;; socialist ★
+★ 🎭;; online, int w me ! //🌙;; away, but c+h always available // ⛔;; not in the mood, sorry... ★
 
-![Ballpit_for_Mannequin_Mark](https://github.com/user-attachments/assets/fe4d5626-cf95-433f-b599-524f9b573c5b)
+![shedletsky-roblox (1)](https://github.com/user-attachments/assets/2c2c9cdb-f295-42d8-aac3-c72bc04c3871)
+
+
+
+
+★ ♉;; birthday — May 7, Sun Taurus // 🍂;; pol/eng ! // ❤️‍🩹;; selectively verbal irl (ASD + ADHD) // ⭐;; communist ★
+
+![shedletsky-forsaken](https://github.com/user-attachments/assets/8f86d775-e0a7-4628-a007-7413e06a5b87)
 
 
 
 ★ ❌;; dni: dbls, most forsaken + regretevator ships, ALL proships, most CH ships. ‼️;; interacting as one of these will result in hostility and / or avoidance. ★
 
-![regretevator-mannequin-mark](https://github.com/user-attachments/assets/5bf442f0-e526-4555-8fa0-c49a6e2a1ffa)
+![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
+
 
 —
 
 ✧
 
-### 🔨 — You don't need bricks for lousy infastructure! Ya gotta get th' good stuff!
+### 🗡️ — Remember that one time when I totally pwned you in SFOTH ?
 ─────✧･ﾟ: *✧･
