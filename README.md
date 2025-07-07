@@ -5,7 +5,7 @@
 
 —
 
-★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; calm , but i can get annoying // 🫂;; iwcare ★
+★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; calm , but i can get annoying // 🫂;; iwcare , don't make me feel left out please i cant believe i have to ask for this ★
 
 ![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 
@@ -18,13 +18,13 @@
 
 
 
-★ ♉;; birthday — May 7, Sun Taurus // 🍂;; pol/eng ! // ❤️‍🩹;; selectively verbal irl (ASD + ADHD) // ⭐;; communist ★
+★ ♉;; May 7 , Sun Taurus // 🌘;; pol/eng ! // ❤️‍🩹;; AuDHD haver // ⭐;; communist ★
 
 ![shedletsky-forsaken](https://github.com/user-attachments/assets/8f86d775-e0a7-4628-a007-7413e06a5b87)
 
 
 
-★ ❌;; dni: dbls, most forsaken + regretevator ships, ALL proships, most CH ships. ‼️;; interacting as one of these will result in hostility and / or avoidance. ★
+★ ❌;; dni: dbls , most fandom ships , ALL proships , DW fandom . // ‼️;; interacting as one of these will result in hostility and / or avoidance . // ❓;; more info on strawp . ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 
