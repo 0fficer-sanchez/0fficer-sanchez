@@ -17,9 +17,6 @@
 
 
 
-
-★ ♉;; May 7 , Sun Taurus // 🌘;; pol/eng ! // ❤️‍🩹;; AuDHD haver // ⭐;; communist ★
-
 ![shedletsky-forsaken](https://github.com/user-attachments/assets/8f86d775-e0a7-4628-a007-7413e06a5b87)
 
 
