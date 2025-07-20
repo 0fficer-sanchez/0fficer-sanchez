@@ -24,7 +24,7 @@
 
 
 
-★ ❌;; dni: dbls , most fandom ships , ALL proships , DW fandom . // ‼️;; interacting as one of these will result in hostility and / or avoidance . // ❓;; more info on strawp . ★
+★ ❌;; dni: dbls , fandom ships unless said otherwise , ALL proships , Dandy's world fandom, Phighting fandom. // ‼️;; interacting as one of these will result in hostility and / or avoidance . // ❓;; more info on strawp . ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 
