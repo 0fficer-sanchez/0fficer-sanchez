@@ -5,7 +5,7 @@
 
 —
 
-★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; calm , but i can get annoying // 🫂;; iwcare , don't make me feel left out please i cant believe i have to ask for this ★
+★ 🍗;; shedletsky / telamon irl // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; chill but lowkey annoying // ⚠️;; sensitive to flashbangs and loud sounds ★
 
 ![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 
@@ -18,7 +18,7 @@
 
 
 
-★ ❌;; dni: dbls , fandom ships unless said otherwise , ALL proships , Dandy's world fandom, Phighting fandom. // ‼️;; interacting as one of these will result in hostility and / or avoidance . // ❓;; more info on strawp . ★
+★ ❌;; dni: doubles, basic criteria , proships , fandom ships ( unless said otherwise ) , other Guest1337 yumes . // ‼️;; interacting as one of these will result in hostility and / or avoidance // ❓;; more info abt me on strawpage . ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 
