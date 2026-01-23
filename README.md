@@ -5,7 +5,7 @@
 
 —
 
-★ 🍗;; call me shed or tela idm // 💥;; god at SFOTH , no1 ragebaiter ! // 🐈‍⬛;; chill but lowkey annoying // ⚠️;; sensitive to flashbangs and loud sounds ★
+★ 🍗;; call me shed , red or tela idm // 💥;; SFOTH god , no1 dragon killa ! // 🐈‍⬛;; friendlover ,, thank you all // ⚠️;; i HATE flashbangs and loud sounds ★
 
 ![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 
@@ -18,7 +18,7 @@
 
 
 
-★ ❌;; dni : doubles , basic criteria , proships , any fandom ships or fans ( unless said otherwise obviously ) , other Guest1337 yumes , maga , apologists , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance // ❓;; more info abt me on strawpage . ★
+★ ❌;; dni : doubles , basic criteria , proships , any fandom ships or fans ( unless said otherwise oFC ) , other Guest1337 + df blue yumes , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance // ❓;; more info abt me on strawpage . ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 
