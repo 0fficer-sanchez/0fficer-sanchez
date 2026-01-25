@@ -1,5 +1,5 @@
 ─────✧･ﾟ: *✧･
-### 👑 — I'M A LEGEND IN MY SPARE TIME ^_^ !
+### 👑 — I'M A LEGEND IN MY SPARE TIME !
 
 ✧
 
@@ -7,7 +7,7 @@
 
 ★ 🍗;; call me shed , red or tela idm // 💥;; SFOTH god , no1 dragon killa ! // 🌯;; friendlover , thank you all // ⚠️;; flashbangs and loud sounds hater ★
 
-![shedletsky-john-shedletsky](https://github.com/user-attachments/assets/bf430cd7-d2e4-437f-845d-5d9b8922803a)
+![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
 
@@ -15,8 +15,12 @@
 ★ 🎭;; online, int w me ! //🌙;; away, but c+h always available // ⛔;; not in the mood, sorry... ★
 
 ![shedletsky-roblox (1)](https://github.com/user-attachments/assets/2c2c9cdb-f295-42d8-aac3-c72bc04c3871)
-![dickfigures-dick-figures](https://github.com/user-attachments/assets/5c776c11-3558-4d69-bd10-130e0c298ac7)
 
+
+
+★ 🌐;; kinlist : shedletsky ( all variants ) , 1x4 , redward , hacklord , chance , twotime , pest , dued1 , unpleasant gradient , cole brookstone , mannequin mark , ron weasley , arthur kirkland , ivan braginsky , tord larsson . ★
+
+![dickfigures-dick-figures](https://github.com/user-attachments/assets/5c776c11-3558-4d69-bd10-130e0c298ac7)
 
 
 
