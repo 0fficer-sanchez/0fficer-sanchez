@@ -14,11 +14,12 @@
 
 ★ 🎭;; online, int w me ! //🌙;; away, but c+h always available // ⛔;; not in the mood, sorry... ★
 
-![shedletsky-roblox (1)](https://github.com/user-attachments/assets/2c2c9cdb-f295-42d8-aac3-c72bc04c3871)
+![shedletsky-roblox](https://github.com/user-attachments/assets/4800a8e6-7326-4bb4-bb71-9770103d1b3e)
 
 
 
-★ 🌐;; kinlist : shedletsky ( all variants ) , 1x4 , redward , hacklord , chance , twotime , pest , dued1 , unpleasant gradient , cole brookstone , mannequin mark , ron weasley , arthur kirkland , ivan braginsky , tord larsson . ★
+
+★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter ( ehh ? kinda .. ) , save robloxia , rblx admins . ★
 
 ![dickfigures-dick-figures](https://github.com/user-attachments/assets/5c776c11-3558-4d69-bd10-130e0c298ac7)
 
