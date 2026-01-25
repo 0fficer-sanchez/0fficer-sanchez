@@ -7,7 +7,7 @@
 
 ★ 🍗;; call me shed , red or tela idm // 💥;; SFOTH god , no1 dragon killa ! // 🌯;; friendlover , thank you all // ⚠️;; flashbangs and loud sounds hater ★
 
-![shedletsky-roblox](https://github.com/user-attachments/assets/a95c9efc-a7d3-4839-8abd-37e515d1594e)
+![shedletsky-john-shedletsky](https://github.com/user-attachments/assets/4d2f358c-96d7-462e-ac23-a15aa5ab0371)
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
 
