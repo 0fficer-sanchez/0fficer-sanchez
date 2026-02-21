@@ -5,7 +5,7 @@
 
 —
 
-★ 🗡️🍗 / 🌯🔴 ;; call me red , shed or telamon // 💥;; SFOTH god , no1 dragon killa & illumina sword main // 💌;; taken .. i love my girlfriend ( https://github.com/Brlghteyez ) and yumes so muchh aahhh ^_^ !! // 🫂;; friendlover , thank you all , ure amazing ★
+★ 🗡️🍗 / 🌯🔴 ;; call me red , shed or telamon // 💥;; SFOTH god , no1 dragon killa & illumina sword main // 💌;; taken .. i love my girlfriend (https://github.com/Brlghteyez) and yumes so muchh aahhh ^_^ !! // 🫂;; friendlover , thank you all , ure amazing ★
 
 ![shedletsky-john-shedletsky](https://github.com/user-attachments/assets/4d2f358c-96d7-462e-ac23-a15aa5ab0371)
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
