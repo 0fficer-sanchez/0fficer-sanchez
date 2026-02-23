@@ -25,7 +25,7 @@
 
 
 
-★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , any fandom ships or fans ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpage ★
+★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships or fans ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpage ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 ![awkward-dick-figures](https://github.com/user-attachments/assets/1ae8201d-a6c3-4050-9513-71f835651572)
