@@ -24,13 +24,13 @@
 
 
 
-★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer ^_^ ★
+★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D ★
 
 ![shedletsky-roblox (1)](https://github.com/user-attachments/assets/df9b5af2-0faf-4b4d-a27c-7b2cb2a65fb9)
 
 
 
-★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpage ★
+★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpages , i have two ^_^ ★
 
 ![forsaken-roblox-forsaken](https://github.com/user-attachments/assets/f0ec5424-f857-42ce-9afd-81a679b868d9)
 ![awkward-dick-figures](https://github.com/user-attachments/assets/1ae8201d-a6c3-4050-9513-71f835651572)
