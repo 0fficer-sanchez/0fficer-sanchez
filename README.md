@@ -18,7 +18,6 @@
 
 
 
-
 ★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter ( ehh ? kinda .. ) , save robloxia , rblx admins ★
 
 ![dickfigures-dick-figures](https://github.com/user-attachments/assets/5c776c11-3558-4d69-bd10-130e0c298ac7)
@@ -31,7 +30,7 @@
 
 
 
-🐥 ;; IRL list : shedletsky ( every variant , including 1x and fs skins ) , df red , dued1 , 2time , chance
+★ 🐥 ;; IRL list : shedletsky ( every variant , including 1x and fs skins ) , df red , dued1 , 2time , chance ★
 
 ![dick-figures-dick-figures](https://github.com/user-attachments/assets/7b45490e-db97-4076-a5d3-6e15c2dd3cb7)
 
