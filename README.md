@@ -15,13 +15,20 @@
 
 ★ 🎭;; online , interact or sit w me ! //🌙;; away or afk , but c + h available // ⛔;; not in the mood , sorry ... ★
 
+![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
+
 
 
 ★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter ( ehh ? kinda .. ) , save robloxia , rblx admins ★
 
+![Adobe Express - lv_0_20260228194906](https://github.com/user-attachments/assets/508c8e5b-e8e2-4a0f-b289-60d1149ac315)
+
+
 
 
 ★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D ★
+
+![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
 
 
 
