@@ -26,7 +26,7 @@
 
 
 
-★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D ★
+★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D // ⚠️;; these only apply to specific IRLs , shed and red ★
 
 ![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
 
