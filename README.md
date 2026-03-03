@@ -14,7 +14,8 @@
 
 ★ 🎭;; online , interact or sit w me ! //🌙;; away or afk , but c + h available // ⛔;; not in the mood , sorry ... ★
 
-![shedletsky-roblox](https://github.com/user-attachments/assets/4800a8e6-7326-4bb4-bb71-9770103d1b3e)
+![dued1](https://github.com/user-attachments/assets/90db19dd-e695-40f6-912f-26cb56192682)
+
 
 
 
@@ -26,7 +27,7 @@
 
 ★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D ★
 
-![shedletsky-roblox (1)](https://github.com/user-attachments/assets/df9b5af2-0faf-4b4d-a27c-7b2cb2a65fb9)
+![shedletsky-roblox](https://github.com/user-attachments/assets/4800a8e6-7326-4bb4-bb71-9770103d1b3e)
 
 
 
