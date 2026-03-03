@@ -19,14 +19,14 @@
 
 
 
-★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter ( ehh ? kinda .. ) , save robloxia , rblx admins ★
+★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter , save robloxia , rblx admins ★
 
 ![Adobe Express - lv_0_20260228194906](https://github.com/user-attachments/assets/508c8e5b-e8e2-4a0f-b289-60d1149ac315)
 
 
 
 
-★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D // ⚠️;; these only apply to specific IRLs , shed and red ★
+★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D // 😓;; only apply to my shed + red IRLs so pls dont send other stuff ★
 
 ![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
 
