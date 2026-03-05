@@ -40,7 +40,7 @@
 
 
 
-★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpages , i have two ^_^ ★
+★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpage ^_^ ★
 
 ![dued1](https://github.com/user-attachments/assets/5f2837da-c11a-44e3-a037-c607745d573b)
 
