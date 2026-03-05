@@ -19,14 +19,20 @@
 
 
 
-★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , harry potter , save robloxia , rblx admins ★
+★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , hetalia , ninjago , regretevator , save robloxia , rblx admins ★
 
 ![Adobe Express - lv_0_20260228194906](https://github.com/user-attachments/assets/508c8e5b-e8e2-4a0f-b289-60d1149ac315)
 
 
 
 
-★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer :D // 😓;; only apply to my shed + red IRLs so pls dont send other stuff ★
+★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff ★
+
+![cole-ninjago](https://github.com/user-attachments/assets/f13d3f28-b2ec-48ba-8e70-0f46d875c569)
+
+
+
+★ ✅;; int : pretty much everyone who isn't in my dni but specifically I'm looking 4 more DF and fans of ships i like... they're listed in my strawpage // ⭐;; also lookin for people to do art trades with or commission me with robux ! whisp to me when I'm online for info ★
 
 ![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
 
