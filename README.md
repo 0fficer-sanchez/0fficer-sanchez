@@ -9,7 +9,7 @@
 
 
 
-★ 🗡️;; call me shed or by my pony names // 💥;; SFOTH champion ( more like god ) , no1 dragon killa & illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf (https://github.com/Brlghteyez) and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
+★ 🗡️;; call me shed ( + other IRLs ) or by username // 💥;; SFOTH champion ( more like god ) , no1 dragon killa & illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf (https://github.com/Brlghteyez) and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
 
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
