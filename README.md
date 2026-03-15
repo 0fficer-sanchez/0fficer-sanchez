@@ -28,7 +28,7 @@
 
 
 
-★ 💝;; yume list : guest 1337 , df blue , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff ★
+★ 💝;; yume list : guest 1337 , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff ★
 
 ![cole-ninjago](https://github.com/user-attachments/assets/f13d3f28-b2ec-48ba-8e70-0f46d875c569)
 
@@ -40,7 +40,7 @@
 
 
 
-★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; more info abt me on my strawpage ^_^ ★
+★ ❌;; dni : doubles AT ALL including with yumes , basic criteria , proships , under 13 , any fandom ships ( unless said otherwise ) , zionists , maga , apologists , larpers , ai supporters . // ‼️;; interacting as one of these will result in hostility and / or avoidance , don't be surprised later lolsies // ❓;; a bit more info abt me on my strawpage ^_^ ★
 
 ![dued1](https://github.com/user-attachments/assets/5f2837da-c11a-44e3-a037-c607745d573b)
 
