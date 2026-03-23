@@ -9,7 +9,7 @@
 
 
 
-★ 🗡️;; call me shed (+ other IRLs) or by my username // 💥;; SFOTH champion (more like god OHYEAA) , no1 dragon killa & illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf (https://github.com/Brlghteyez) and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
+★ 🗡️;; call me shed (+ other IRLs) or by my username // 💥;; SFOTH champion (more like god OHYEAA) , no1 illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf (https://github.com/officersnowflake) and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
 
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
@@ -28,13 +28,13 @@
 
 
 
-★ 💝;; yume list : guest 1337 , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff ★
+★ 💝;; yume list : guest 1337 , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff than that ★
 
 ![cole-ninjago](https://github.com/user-attachments/assets/f13d3f28-b2ec-48ba-8e70-0f46d875c569)
 
 
 
-★ ✅;; int : pretty much everyone who isn't in my dni but specifically I'm looking 4 more DF and fans of ships i like... they're listed in my strawpage // ⭐;; also lookin for people to do art trades with or commission me with robux ! whisp to me when I'm online for info ★
+★ ✅;; int : pretty much everyone who isn't in my dni but specifically I'm looking 4 more moots and fans of ships i like... they're listed in my strawpage // ⭐;; also lookin for people to do art trades with or commission me with robux ! whisp to me when I'm online for info ★
 
 ![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
 
