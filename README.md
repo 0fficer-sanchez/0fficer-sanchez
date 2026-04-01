@@ -9,7 +9,7 @@
 
 
 
-★ 🗡️;; call me shed (+ other IRLs) or by my username // 💥;; SFOTH champion (more like god OHYEAA) , no1 illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
+★ 🗡️;; IRLshift , call me any of my IRLs names // 💥;; SFOTH champion (more like god OHYEAA) , no1 illumina kissa ... yall CANT compete // 💌;; taken .. i love my gf and yumes so muchh aaa ^_^ // 🫂;; friendlover , thank you all , ure amazing ★
 
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
@@ -28,7 +28,7 @@
 
 
 
-★ 💝;; yume list : guest 1337 , mafioso , doombringer , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff than that ★
+★ 💝;; yume list : guest 1337 , mafioso , kai smith :D // 😓;; the roblox ones only apply to my shed IRL so pls dont send other stuff than that ★
 
 ![cole-ninjago](https://github.com/user-attachments/assets/f13d3f28-b2ec-48ba-8e70-0f46d875c569)
 
