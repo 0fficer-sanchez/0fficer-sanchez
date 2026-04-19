@@ -12,7 +12,7 @@
 
 \- Names : any names of my IRLchars are fine to call me , my closest friends particularly call me Cole / Shed / Red ... nicknames are also ok
 
-\- Hobbies : i like drawing and writing , cooking , reading about history politics and infodumping ... but most of all playing with my friends !! oh and i like cake . did i mention i like cake ?
+\- Hobbies : i like drawing and writing , cooking , reading about historyy / politics and infodumping ... but most of all playing with my friends !! oh and i like cake . did i mention i like cake ?
 
 \- Music : predominantly metal and gothic music but i love joke rock and alt rock ,, my fav bands are Deftones , Bloodhound Gang , Femtanyl , Violent Vira , Nosferatu , Fleshwater , Enej and MSI . i dont support MSIs actions
 
