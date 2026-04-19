@@ -8,7 +8,7 @@
 ![shedletsky-john-shedletsky](https://github.com/user-attachments/assets/4d2f358c-96d7-462e-ac23-a15aa5ab0371)
 
 
-——★ 🗡️ main info
+——★ 🗡️ main info !
 
 \- Names : any names of my IRLchars are fine to call me , my closest friends particularly call me Cole / Shed / Red ... nicknames are also ok
 
@@ -16,11 +16,11 @@
 
 \- Music : predominantly metal and gothic music but i love joke rock and alt rock ,, my fav bands are Deftones , Bloodhound Gang , Femtanyl , Violent Vira , Nosferatu , Fleshwater , Enej and MSI . i dont support MSIs actions
 
-\- Fun facts abt me : i speak english and polish fluently and im mixed race ehee ,, i do art trades and commissions for robux yayy , also #1 SFOTH champion AND illumina kisser
+\- Fun facts : i speak english and polish fluently and im mixed race ehee ,, i do art trades and commissions for robux yayy !! also #1 SFOTH champion AND illumina kisser she's my favourite sword
 
-\- Worldview ? : there's always light at the end of the tunnel 
+\- Worldview ? : i think there's always light at the end of the tunnel ^_^
 
-——★ 💌 my gf is the BEST !! ^_^
+——★ 💌 my partner is the BEST !! 
 
 ——★ 🫂 friendlover , thank you all
 
@@ -37,7 +37,7 @@
 <img width="250" height="124" alt="1x1x1x1_intro" src="https://github.com/user-attachments/assets/578d620e-1b0f-4148-842a-e166931fa806" />
 
 
-——★ 🌐 fandoms
+——★ 🌐 fandoms !
 
 \- Roblox : tlg , sfoth , 4saken , regretevator , save robloxia , rblx admins
 
@@ -45,7 +45,7 @@
 
 ![Adobe Express - lv_0_20260228194906](https://github.com/user-attachments/assets/508c8e5b-e8e2-4a0f-b289-60d1149ac315)
 
-——★ 💝 yumes
+——★ 💝 yumes !
 
 \- Roblox : guest 1337 , mafioso
 
@@ -56,7 +56,7 @@
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
 
-——★ ✅ int
+——★ ✅ int !
 
 \- Obviously : pretty much everyone who isn't in my dni , dont be a prick and we'll be fine but im kind of iffy with making new friends
 
@@ -65,7 +65,7 @@
 ![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
 
 
-——★ ❌ dni
+——★ ❌ dni !
 
 \- Basic stuff : proships , ANY doubles including yumes , under 13, zionists ,maga , apologists , larpers , ai supporters
 
