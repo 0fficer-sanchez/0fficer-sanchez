@@ -33,41 +33,39 @@
 
 ——★ 🌐 fandoms !
 
-\- Roblox : tlg , sfoth , 4saken , regretevator , save robloxia , rblx admins
+\- Roblox : tlg , sfoth , forsaken , regretevator , save robloxia , rblx admins
 
 \- Other : dickfigures , eddsworld , countryhumans , ninjago
 
-![Adobe Express - lv_0_20260228194906](https://github.com/user-attachments/assets/508c8e5b-e8e2-4a0f-b289-60d1149ac315)
+<img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
+
+
 
 ——★ 💝 yumes !
 
 \- Roblox : guest 1337 , mafioso
 
-\- Ninjago : kai , jay
+\- Ninjago : kai , jay 
 
-——★ 😓 the roblox ones only apply to my shed IRL so pls dont send other stuff than that , thank you for respecting boundaries !
 
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
 
 
 ——★ ✅ int !
 
-\- Obviously : pretty much everyone who isn't in my dni , dont be a prick and we'll be fine but im kind of iffy with making new friends
+\- Obviously : just ppl who arent in my dni , but im kind of iffy with making new friends
 
-\- Fandom related : it's really a bonus if you're in the same fandoms as me and like the same ships ! errmm Forsaken fans and people who dont share any fandoms with me iwc please
+\- Fandom related : same fandoms and same ships ! Forsaken fans and people who dont share any fandoms with me iwc pls
 
 ![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
 
 
 ——★ ❌ dni !
 
-\- Basic stuff : proships , ANY doubles including yumes , under 13, zionists ,maga , apologists , larpers , ai supporters
+\- Basic stuff : proships , ANY doubles including yumes , -13 , zionists , maga , apologists , larpers , ai supporters
 
-\- Fandom specific : ships in general unless stated on my strawpage , people who will lecture me on my own headcanons , AUs , designs or ships . its really not that serious
+\- Fandom specific : ships in general ( except whats on my strawpage list ) , people against my headcanons or ships . its really not that serious ,,
 
-——★ ‼️ will lead to hostility or avoidance if breached ,, what do you expect honestly its just not that hard to respect this #tbh
-
-——★ ❓ bit more info on strawpage ! go check it outt ^_^/"
 
 ![dued1](https://github.com/user-attachments/assets/5f2837da-c11a-44e3-a037-c607745d573b)
 
