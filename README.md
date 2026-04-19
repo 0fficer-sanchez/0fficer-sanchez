@@ -60,7 +60,7 @@
 
 \- Obviously : pretty much everyone who isn't in my dni , dont be a prick and we'll be fine but im kind of iffy with making new friends
 
-\- Fandom related : it's really a bonus if you're in the same fandoms as me and like the same ships . Forsaken fans iwc please
+\- Fandom related : it's really a bonus if you're in the same fandoms as me and like the same ships ! errmm Forsaken fans and people who dont share any fandoms with me iwc please
 
 ![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
 
