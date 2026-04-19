@@ -10,15 +10,9 @@
 
 ——★ 🗡️ main info !
 
-\- Names : any names of my IRLchars are fine to call me , my closest friends particularly call me Cole / Shed / Red ... nicknames are also ok
+\- Name : any names nicknames of my IRLchars + nicknames are fine to call me
 
-\- Hobbies : i like drawing and writing , cooking , reading about historyy / politics and infodumping ... but most of all playing with my friends !! oh and i like cake . did i mention i like cake ?
-
-\- Music : predominantly metal and gothic music but i love joke rock and alt rock ,, my fav bands are Deftones , Bloodhound Gang , Femtanyl , Violent Vira , Nosferatu , Fleshwater , Enej and MSI . i dont support MSIs actions
-
-\- Fun facts : i speak english and polish fluently and im mixed race ehee ,, i do art trades and commissions for robux yayy !! also #1 SFOTH champion AND illumina kisser she's my favourite sword
-
-\- Worldview ? : i think there's always light at the end of the tunnel ^_^
+\- Misc : i speak english / polish and im mixed race ,,, errhh i like cake , rock + metal music and history / politics #iguessbro
 
 ——★ 💌 my partner is the BEST !! 
 
