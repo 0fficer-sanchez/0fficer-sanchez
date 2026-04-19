@@ -11,11 +11,15 @@
 
 ★ 🗡️;; call me by any of my IRL characters or nicknames if we're close // 💥;; SFOTH champion (more like god OHYEAA) , illumina kisser // 💌;; my gf is the BEST !! ^_^ // 🫂;; friendlover , thank you all ★
 
-![cole-ninjago](https://github.com/user-attachments/assets/f13d3f28-b2ec-48ba-8e70-0f46d875c569)
+<img width="600" height="338" alt="tumblr_c358d37cfcd160384108d93585ba9167_3807e01f_640" src="https://github.com/user-attachments/assets/f1c4173f-b099-4890-89d4-2531052845dd" />
+
+
 
 ★ 🎭;; online , interact or sit w me ! //🌙;; away or afk , but c + h available // ⛔;; not in the mood , sorry ... ★
 
-![download](https://github.com/user-attachments/assets/625ea908-d5eb-47ba-827c-0bdcadd49fe7)
+<img width="250" height="124" alt="1x1x1x1_intro" src="https://github.com/user-attachments/assets/578d620e-1b0f-4148-842a-e166931fa806" />
+
+
 
 ★ 🌐;; fandoms : tlg , sfoth , 4saken , dickfigures , eddsworld , countryhumans , ninjago , regretevator , save robloxia , rblx admins ★
 
