@@ -66,6 +66,8 @@
 
 \- Fandom specific : ships in general ( except whats on my strawpage list ) , people against my headcanons or ships . its really not that serious ,,
 
+\- Strawpage : https://0fficersanchez.straw.page/
+
 
 ![dued1](https://github.com/user-attachments/assets/5f2837da-c11a-44e3-a037-c607745d573b)
 
