@@ -10,7 +10,7 @@
 
 ——★ 🗡️ main info !
 
-\- Name : any names nicknames of my IRLchars + nicknames are fine to call me
+\- Name : any names nicknames of my IRLchars + nicknames are fine to call me , but my closest call me shed , cole or red
 
 \- Misc : i speak english / polish and im mixed race ,,, errhh i like cake , rock + metal music and history / politics #iguessbro
 
@@ -65,6 +65,9 @@
 \- Basic stuff : proships , ANY doubles including yumes , -13 , zionists , maga , apologists , larpers , ai supporters
 
 \- Fandom specific : ships in general ( except whats on my strawpage list ) , people against my headcanons or ships . its really not that serious ,,
+
+
+——★ 🍎 other links ! 
 
 \- Strawpage : https://0fficersanchez.straw.page/
 
