@@ -14,6 +14,8 @@
 
 \- Misc : i speak english / polish and im mixed race ,,, errhh i like cake , rock + metal music and history / politics #iguessbro
 
+——★ 🇬🇧 proudly raised in the UK !
+
 ——★ 💌 my partner is the BEST !! 
 
 ——★ 🫂 friendlover , thank you all
