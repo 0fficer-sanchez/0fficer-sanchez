@@ -37,17 +37,13 @@
 
 \- Roblox : tlg , sfoth , forsaken , regretevator , save robloxia , rblx admins
 
-\- Other : dickfigures , eddsworld , countryhumans , ninjago
+\- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog
 
 <img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
 
 
 
-——★ 💝 yumes !
-
-\- Roblox : guest 1337 , mafioso
-
-\- Ninjago : kai , jay 
+——★ 💝 yumes r guest 1337 , mafioso , kai smith , jay walker and finland ( ch + hetalia )
 
 
 ![dick-figures](https://github.com/user-attachments/assets/b2cfd5ce-965a-46af-aa13-819469b3f913)
