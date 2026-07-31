@@ -37,7 +37,7 @@
 
 \- Roblox : tlg , sfoth , forsaken , regretevator , save robloxia , rblx admins
 
-\- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog
+\- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog , jjk
 
 <img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
 
