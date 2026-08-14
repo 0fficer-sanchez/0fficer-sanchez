@@ -67,7 +67,8 @@
 
 ——★ 🍎 other links ! 
 
-\- Strawpage : https://0fficersanchez.straw.page/
+\- Strawpages : https://shedoftheheights.straw.page/
++ https://0fficersanchez.straw.page/ for my twitter sp
 
 \- ATAbook : 
 https://0fficersanchez.atabook.org/
