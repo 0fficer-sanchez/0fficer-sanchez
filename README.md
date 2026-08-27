@@ -37,7 +37,7 @@
 
 \- Roblox : tlg , sfoth , forsaken , regretevator , save robloxia , rblx admins
 
-\- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog , jjk
+\- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog , jjk , hetalia , southpark
 
 <img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
 
@@ -53,7 +53,7 @@
 
 \- Obviously : just ppl who arent in my dni , but im kind of iffy with making new friends
 
-\- Fandom related : same fandoms and same ships ! Forsaken fans and people who dont share any fandoms with me iwc pls
+\- Fandom related : same fandoms and same ships ! Forsaken + South Park fans and people who dont share any fandoms with me iwc pls
 
 ![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
 
@@ -72,6 +72,13 @@
 
 \- ATAbook : 
 https://0fficersanchez.atabook.org/
+
+\- Other accounts :
+https://github.com/cole-brookstone
+https://github.com/finpol-yaoi
+https://github.com/Dued-1
+https://github.com/eric-cart-man
+https://github.com/chickenpunch
 
 ![dued1](https://github.com/user-attachments/assets/5f2837da-c11a-44e3-a037-c607745d573b)
 
