@@ -68,12 +68,13 @@
 ——★ 🍎 other links ! 
 
 \- Strawpages : https://shedoftheheights.straw.page/
-+ https://0fficersanchez.straw.page/ for my twitter sp
+https://0fficersanchez.straw.page/ for my twitter sp
 
 \- ATAbook : 
 https://0fficersanchez.atabook.org/
 
 \- Other accounts :
+
 https://github.com/cole-brookstone
 https://github.com/finpol-yaoi
 https://github.com/Dued-1
