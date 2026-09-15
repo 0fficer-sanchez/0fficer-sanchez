@@ -20,8 +20,8 @@
 
 ——★ 🫂 friendlover , thank you all
 
-<img width="600" height="338" alt="tumblr_c358d37cfcd160384108d93585ba9167_3807e01f_640" src="https://github.com/user-attachments/assets/f1c4173f-b099-4890-89d4-2531052845dd" />
 
+<img width="600" height="338" alt="tumblr_c358d37cfcd160384108d93585ba9167_3807e01f_640" src="https://github.com/user-attachments/assets/f1c4173f-b099-4890-89d4-2531052845dd" />
 
 
 ——★ 🎭 online , interact or sit w me !
@@ -29,6 +29,7 @@
 ——★ 🌙 away or afk , but c + h available
 
 ——★ ⛔ not in the mood , sorry ...
+
 
 <img width="250" height="124" alt="1x1x1x1_intro" src="https://github.com/user-attachments/assets/578d620e-1b0f-4148-842a-e166931fa806" />
 
@@ -39,8 +40,8 @@
 
 \- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog , jjk , hetalia , southpark
 
-<img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
 
+<img width="220" height="165" alt="roblox-chance" src="https://github.com/user-attachments/assets/2a376f6c-7134-41d5-baca-2a9acf450714" />
 
 
 ——★ 💝 yumes r guest 1337 , mafioso , kai smith , jay walker and finland ( ch + hetalia )
@@ -55,6 +56,7 @@
 
 \- Fandom related : same fandoms and same ships ! Forsaken + South Park fans and people who dont share any fandoms with me iwc pls
 
+
 ![two-time-two-time-forsaken](https://github.com/user-attachments/assets/e2d836f6-76ce-4744-84e5-edc3b8f2caeb)
 
 
@@ -63,6 +65,10 @@
 \- Basic stuff : proships , ANY doubles including yumes , -13 , zionists , maga , apologists , larpers , ai supporters
 
 \- Fandom specific : ships in general ( except whats on my strawpage list ) , people against my headcanons or ships . its really not that serious ,,
+
+
+<img width="220" height="186" alt="1000173534" src="https://github.com/user-attachments/assets/71e19b98-fd80-45a9-b6ff-71d4fbf034da" />
+
 
 
 ——★ 🍎 other links ! 
