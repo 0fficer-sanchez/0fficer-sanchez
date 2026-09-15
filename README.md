@@ -35,7 +35,7 @@
 
 ——★ 🌐 fandoms !
 
-\- Roblox : tlg , sfoth , forsaken , regretevator , save robloxia , rblx admins
+\- Roblox : tlg , sfoth , gnb , forsaken , regretevator , save robloxia , rblx admins
 
 \- Other : dickfigures , eddsworld , countryhumans , ninjago , mandela catalog , jjk , hetalia , southpark
 
