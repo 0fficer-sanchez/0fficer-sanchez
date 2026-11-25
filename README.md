@@ -5,7 +5,7 @@
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-<img width="220" height="99" alt="1000179760" src="https://github.com/user-attachments/assets/9fa89a0b-5504-4f79-832e-04f71ca748f8" />
+<img width="220" height="99" alt="1000179760" src="https://github.com/user-attachments/assets/9fa89a0b-5504-4f79-832e-04f71ca748f8"/>
 
 —catholic and british + polish
 
