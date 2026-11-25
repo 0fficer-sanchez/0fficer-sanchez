@@ -5,7 +5,8 @@
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-<img width="220" height="99" alt="1000179760" src="https://github.com/user-attachments/assets/9fa89a0b-5504-4f79-832e-04f71ca748f8"/>
+<img width="220" height="99" alt="1000179760" src="https://github.com/user-attachments/assets/c851b11b-ce20-46c1-884b-f575e55d7c39" />
+
 
 —catholic and british + polish
 
@@ -19,12 +20,12 @@
 
 —i dont make friends online i kind of just Watch From Afar innit ,, i like spectating rather than engaging as i completely avoid talking to people that i dont know personally
 
-<img width="480" height="270" alt="1000179761" src="https://github.com/user-attachments/assets/84cfdd84-716c-4de8-8416-d7162211882d" />
 
+<img width="480" height="270" alt="1000179761" src="https://github.com/user-attachments/assets/84cfdd84-716c-4de8-8416-d7162211882d" />
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 
-### 🌀 — His hat's worth 50,000 men , but he is no gentleman !
+### 🌀 — His hat's worth 50,000 men but he is no gentleman!
 ─────✧･ﾟ: *✧･
 
