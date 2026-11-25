@@ -12,9 +12,9 @@
 
 —i like drawing and playing centaura , minesweeper , natural disaster survival , gnb and sewh on roblox
 
-—currently fixated on napoleonic era regiments ESPECIALLY french cuirassiers and polish lancers !!!
+—currently fixated on napoleonic era regiments ESPECIALLY french cuirassiers and polish lancers !
 
-—HUGE HISTORY FREAK !! while i do like medical history a lot , i have most knowledge on the 20th century wars that went on like ww1 , ww2 and cold war .., even minor things like the sovipol war
+—HUGE HISTORY FREAK !!! while i do like medical history a lot , i have most knowledge on the 20th century wars that went on like ww1 , ww2 and cold war .., even minor things like the sovipol war . something also draws me towards Maoist era Chinese history which is odd
 
 —i really REALLY love RAF and Luftwaffe planes and ww2 tanks and guns sighhhhhhhh ... Messerschmitt BF109s are my favourite planes !
 
